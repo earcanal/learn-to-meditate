@@ -1,4 +1,6 @@
-# Week 1
+# Learn to Meditate
+
+## Week 1
 
 [Ajahn Brahm's Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf)
 
