@@ -2,7 +2,7 @@
 
 Great to see you today.
 
-I've attached Ajahn Brahm's Basic Method of Meditation, the official instruction manual for the type of meditation we're doing.  Have a read up to page 5 which is as far as we'll be going in this course.  This will reinforce the introduction I gave you at the session.
+[Ajahn Brahm's Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf), the official instruction manual for the type of meditation we're doing.  Have a read up to page 5 which is as far as we'll be going in this course.  This will reinforce the introduction I gave you at the session.
 
 Here's a link to the 10 minute guided meditation I'd like you to download and use this week:
 
