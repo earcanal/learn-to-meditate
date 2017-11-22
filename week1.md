@@ -9,3 +9,11 @@ Read pages 1-5 which are the official instructions for the course.
 [Week 1 guided meditation (10 minutes)](https://goo.gl/zteJS3)
 
 This meditation will reinforce the the 3 meditation stages which were introduced in the first class.  You don't need to keep track of time, as the instruction will tell you when to end the meditation.  Feel free to meditate a bit longer if you like.  Use this guided meditation for at least the first 2 or 3 sessions.
+
+### Day 1
+
+Your goal this week is establish a daily practice in which you prepare for meditation (step 0!), and become familiar with the 3 stages of the meditation.  To establish this routine, briefly review your meditation goals and motivations each day.  When you meditate, try to let go of expectations.  Become interested in, rather than frustrated by distractions and practise diligently!
+
+If you're struggling to meditate daily, try to discover and stick to your optimum meditation time and place.  To overcome procrastination, do your meditation before any competing tasks.  You may find the meditation makes those tasks easier or more enjoyable.  Use any inspiration, motivation and pleasure associated with meditation to counter reluctance and resistance to actually doing the practice.  You all know how to meditate, so trust in your abilities!
+
+
