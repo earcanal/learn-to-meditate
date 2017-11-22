@@ -12,7 +12,7 @@ This meditation will reinforce the the 3 meditation stages which were introduced
 
 ### Day 1
 
-Your goal this week is establish a daily practice in which you prepare for meditation (step 0!), and become familiar with the 3 stages of the meditation.  To establish this routine, briefly review your meditation goals and motivations each day.  When you meditate, try to let go of expectations.  Become interested in, rather than frustrated by distractions and practise diligently!
+Your goal this week is establish a daily practice routine in which you prepare for meditation (step 0), and become familiar with the 3 stages.  To establish this routine, briefly review your meditation goals and motivations each day.  When you meditate, try to let go of expectations.  Become interested in, rather than frustrated by distractions and practise diligently!
 
 If you're struggling to meditate daily, try to discover and stick to your optimum meditation time and place.  To overcome procrastination, do your meditation before any competing tasks.  You may find the meditation makes those tasks easier or more enjoyable.  Use any inspiration, motivation and pleasure associated with meditation to counter reluctance and resistance to actually doing the practice.  You all know how to meditate, so trust in your abilities!
 
