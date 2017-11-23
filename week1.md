@@ -10,10 +10,19 @@ Read pages 1-5 which are the official instructions for the course.
 
 This meditation will reinforce the the 3 meditation stages which were introduced in the first class.  You don't need to keep track of time, as the instruction will tell you when to end the meditation.  Feel free to meditate a bit longer if you like.  Use this guided meditation for at least the first 2 or 3 sessions.
 
-### Day 1
+### Day 1: Establishing a meditation practice
 
 Your goal this week is establish a daily practice routine in which you prepare for meditation (step 0), and become familiar with the 3 stages.  To establish this routine, briefly review your meditation goals and motivations each day.  When you meditate, try to let go of expectations.  Become interested in, rather than frustrated by distractions and practise diligently!
 
 If you're struggling to meditate daily, try to discover and stick to your optimum meditation time and place.  To overcome procrastination, do your meditation before any competing tasks.  You may find the meditation makes those tasks easier or more enjoyable.  Use any inspiration, motivation and pleasure associated with meditation to counter reluctance and resistance to actually doing the practice.  You all know how to meditate, so trust in your abilities!
+
+### Day 2: Posture
+
+Meditation posture should generally be "comfortable and upright" or "simultaneously relaxed and alert".  If you're sitting in a chair, choose one similar to those we had in the session.  Sit with feet flat on the floor, head balanced on top (to avoid nodding).  Follow the same principles sitting on the floor if you prefer.  It's fine to use cushions or to sit against a wall to support your back.  Starting by getting as comfortable as possilbe will minimise any disturbances from having to move during the meditation.  The upgrightness should prevent you falling asleep.  It's fine to make adjustments to re-establish comfort or upgrightness during the meditation.  However, do this slowly, and incorporate it into the meditation by noticing the body sensations as you make any adustments.
+
+Here's Ajahn Brahm's advice on posture
+
+  https://www.youtube.com/embed/3WOtkPm_9gU?start=1712&end=2129
+
 
 
