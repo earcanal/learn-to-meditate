@@ -1,6 +1,6 @@
 # Learn to Meditate
 
-## Week 1
+## Week 1 Resources
 
 [Ajahn Brahm's Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf)
 
@@ -8,7 +8,9 @@ Read pages 1-5 which are the official instructions for the course.
 
 [Week 1 guided meditation (10 minutes)](https://goo.gl/zteJS3)
 
-This meditation will reinforce the the 3 meditation stages which were introduced in the first class.  You don't need to keep track of time, as the instruction will tell you when to end the meditation.  Feel free to meditate a bit longer if you like.  Use this guided meditation for at least the first 2 or 3 sessions.
+## Week 1
+
+This week's meditation will reinforce the the 3 meditation stages which were introduced in the first class.  You don't need to keep track of time, as the instruction will tell you when to end the meditation.  Feel free to meditate a bit longer if you like.  Use this guided meditation for at least the first 2 or 3 sessions.
 
 ### Day 1: Establishing a meditation practice
 
@@ -22,11 +24,15 @@ If you're struggling to meditate daily, try to discover and stick to your optimu
 
 Meditation posture should generally be  **comfortable and upright** or **simultaneously relaxed and alert**.  If you're sitting in a chair, choose one similar to those we had in the session.  Sit with feet flat on the floor, head balanced on top (to avoid nodding).  Follow the same principles sitting on the floor if you prefer.  It's fine to use cushions or to sit against a wall to support your back.  Starting by getting as comfortable as possilbe will minimise any disturbances from having to move during the meditation.  The upgrightness should prevent you falling asleep.  It's fine to make adjustments to re-establish comfort or upgrightness during the meditation.  However, do this slowly, and incorporate it into the meditation by noticing the body sensations as you make any adustments.
 
-Here's [Ajahn Brahm talking about meditation posture (6m)](https://www.youtube.com/embed/3WOtkPm_9gU?start=1712&end=2129).
+Here's Ajahn Brahm talking about meditation posture:
+
+* [YouTube (6 minutes)](https://www.youtube.com/embed/3WOtkPm_9gU?start=1712&end=2129).
 
 ### Day 3: Step 0, Step 1
 
-Here's [Ajahn Brahm explaining how you prepare for meditation (step 0), then let go of the past and the future to reveal the present moment (step 1) (8m)](https://www.youtube.com/embed/3WOtkPm_9gU?start=2390&end=2948).
+Here's Ajahn Brahm explaining how you prepare for meditation (step 0), then let go of the past and the future to reveal the present moment (step 1):
+
+* [YouTube (8 minutes)](https://www.youtube.com/embed/3WOtkPm_9gU?start=2390&end=2948).
 
 
 
