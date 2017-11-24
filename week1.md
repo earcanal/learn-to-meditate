@@ -30,7 +30,7 @@ Here's Ajahn Brahm talking about meditation posture:
 
 ### Day 3: Step 0, Step 1
 
-Here's Ajahn Brahm explaining how you prepare for meditation (step 0), then let go of the past and the future to reveal the present moment (step 1):
+Here's Ajahn Brahm explaining how you prepare for meditation (stage 0), then how letting go of the past and the future reveals the present moment (stage 1):
 
 * [YouTube (8 minutes)](https://www.youtube.com/embed/3WOtkPm_9gU?start=2390&end=2948).
 
