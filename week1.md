@@ -28,11 +28,16 @@ Here's Ajahn Brahm talking about meditation posture:
 
 * [YouTube (6 minutes)](https://www.youtube.com/embed/3WOtkPm_9gU?start=1712&end=2129).
 
-### Day 3: Step 0, Step 1
+### Day 3: Preparation, Sustained attention on the present moment
 
 Here's Ajahn Brahm explaining how you prepare for meditation (stage 0), then how letting go of the past and the future reveals the present moment (stage 1):
 
 * [YouTube (8 minutes)](https://www.youtube.com/embed/3WOtkPm_9gU?start=2390&end=2948).
 
+### Day 4: Silent awareness of the present moment
 
+Recall Ajahn Brahm's simile for stage 2:
+
+*You may imagine your mind to be a host at a party, meeting the guests as they come in the door. If one guest comes in and you meet them and start talking to them about this that or the other, then you are not doing your duty of paying
+attention to the next guest that comes in the door.*
 
