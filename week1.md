@@ -39,5 +39,6 @@ Here's Ajahn Brahm explaining how you prepare for meditation (stage 0), then how
 Recall Ajahn Brahm's simile for stage 2:
 
 *You may imagine your mind to be a host at a party, meeting the guests as they come in the door. If one guest comes in and you meet them and start talking to them about this that or the other, then you are not doing your duty of paying
-attention to the next guest that comes in the door.*
+attention to the next guest that comes in the door.  Since a guest comes in the door every moment, all you can do is to
+greet one and then immediately go on to greet the next one.  You cannot afford to engage in even the shortest conversation with any guest, since this would mean you would miss the one coming in next. In meditation, all experiences come through the door of our senses into the mind one by one in succession. If you greet one experience with mindfulness and then get into conversation with your guest, then you will miss the next experience following right behind.*
 
