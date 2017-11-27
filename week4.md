@@ -14,4 +14,13 @@ Use the guided meditation above for at least the first one or two 25 minute medi
 
 Of course, all of your good and bad meditations are now in the past!  So treat this week as a brand new opportunity to get a taste for what meditation has to offer, and give it everything you've got!
 
+## Kindfulness
+
+Ajahn Brahm emphasises "kindfulness" in the meditations which we have been doing.  Here is some very practical advice which you can apply before and during meditation, which will be of particular interest to psychologists:
+
+* [YouTube](https://www.youtube.com/embed/UU2oKq8X_po?start=240&end=712) (7m)
+
+You may also want to re-watch Ajahn Brahm's comments on mindfulness _with_ wisdom/kindness:
+
+* [YouTube](https://www.youtube.com/embed/XLZYPojKYw4?start=810&end=1515) (~11m)
 
