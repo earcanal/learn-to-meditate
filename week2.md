@@ -21,11 +21,11 @@ become comfortable with this routine, you could try it without the guidance if y
 
 Here's a reminder of the brief, but powerful breath exercise we did in the class.
 
-<blockquote>Sit in any posture that allows you to be alert and relaxed at the same time,
+_Sit in any posture that allows you to be alert and relaxed at the same time,
 whatever that means to you. You may keep your eyes open or closed. Let us take three breaths. In the first breath,
 bring gentle but intense attention to the process of breathing. In the second breath, calm the body. In the third breath,
 bring up joy. If necessary, bring up a smile or a half smile, whatever the words half smile mean to you. If any joy arises,
-bring full attention to it. If you like, repeat this three-breaths practice a few more times.</blockquote>
+bring full attention to it. If you like, repeat this three-breaths practice a few more times._
 
 -- Chade Meng Tan, [Joy on Demand](https://books.google.co.uk/books?id=9huoCgAAQBAJ&lpg=PP1&dq=joy%20on%20demand&pg=PP1#v=onepage&q=joy%20on%20demand&f=false)
 
