@@ -29,3 +29,18 @@ and also when you first move your attention to the breath.  It tunes your awaren
 Use [the guided meditation]((https://drive.google.com/file/d/0B8G4U8ekxz_TTFYxenhVLXpPTzg/view?usp=sharing)) for at least
 the first 3 days this week.  Find your relaxed, alert posture as you listen to Ajahn Brahm's brief introduction.
 He will then guide you through stage 1 (sustained attention on the present moment) and stage 2 (silent awareness of the present moment).  I've added instructions for counting breaths in groups of 9, which is a way to stabilse attention on the breath when you reach stage 3 (silent present moment awareness of the breath).  Once you become comfortable with this routine, you can try it without the guidance if you prefer.
+
+### Day 1: Silent present moment awareness of the breath
+
+The meditation this week is still quite short, but try to spend a least the last few minutes at stage 3 - silent present moment awareness of the breath.
+
+Here's Ajahn Brahm's advice on how to *invite* the breath, after preparing the mind
+
+  * [YouTube  (6 mins)](https://youtube.com/embed/nCUQdIbfWwQ?start=930&end=1305)
+  * [YouTube  (1 min)](https://youtube.com/embed/nCUQdIbfWwQ?start=2690&end=2791)
+
+and how to go about watching your breath
+
+  * [YouTube  (6 mins)](https://youtube.com/embed/nCUQdIbfWwQ?start=1590&end=2095)
+
+If you meditate without guidance, you can time the meditation using a phone, or an ordinary clock or watch (open your eyes briefly to check the time but remember Ajahn Brahm's advice regarding clock watching).
