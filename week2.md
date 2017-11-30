@@ -44,3 +44,13 @@ and how to go about watching your breath
   * [YouTube  (6 mins)](https://youtube.com/embed/nCUQdIbfWwQ?start=1590&end=2095)
 
 If you meditate without guidance, you can time the meditation using a phone, or an ordinary clock or watch (open your eyes briefly to check the time but remember Ajahn Brahm's advice regarding clock watching).
+
+### Day 2: Establishing a meditation practice
+
+*The goal [...] is to develop a regular meditation practice. Put all your effort into forming and holding a conscious intention to sit down and meditate for a set period every day, and to practice diligently for the duration of the sit. When your intentions are clear and strong, the appropriate actions naturally follow, and you’ll find yourself regularly sitting down to meditate. If this doesn’t happen, rather than chastising yourself and trying to force yourself to practice, work on strengthening your motivation and intentions instead.*
+
+  **-- The Mind Illuminated, A Complete Meditation Guide**
+
+*Often with meditation there will be some hard work at the beginning, but be willing to bear that hard work knowing that it will lead you to experience some very beautiful and meaningful states. They will be well worth the effort! It is a law of nature that without effort one does not make progress.  Whether one is a layperson or a monk, without effort one gets nowhere, in meditation or in anything.*
+
+  **-- Ajahn Brahm, The Basic Method of Meditation**
