@@ -54,3 +54,11 @@ If you meditate without guidance, you can time the meditation using a phone, or 
 *Often with meditation there will be some hard work at the beginning, but be willing to bear that hard work knowing that it will lead you to experience some very beautiful and meaningful states. They will be well worth the effort! It is a law of nature that without effort one does not make progress.  Whether one is a layperson or a monk, without effort one gets nowhere, in meditation or in anything.*
 
   **-- Ajahn Brahm, The Basic Method of Meditation**
+  
+### Day 4: Breath counting
+  
+This week we introduced breath counting to help you with stage 3 of the meditation.  Ajahn Brahm has something to say about this:
+
+  * [YoutTube (3.5m)](https://www.youtube.com/embed/MTWDEzbRza4?start=1&end=230)
+
+His technique is more complicated than we need, so stick to counting 9 breaths as per the guided meditation.
