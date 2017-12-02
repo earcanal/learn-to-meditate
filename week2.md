@@ -57,7 +57,7 @@ If you meditate without guidance, you can time the meditation using a phone, or 
   
 ### Day 4: Breath counting
   
-This week we introduced breath counting to help you with stage 3 of the meditation.  Ajahn Brahm has something to say about this:
+This week we introduced breath counting to help you with stage 3, **silent present moment awareness of the breath**.  Ajahn Brahm has something to say about this:
 
   * [YoutTube (3.5m)](https://www.youtube.com/embed/MTWDEzbRza4?start=1&end=230)
 
