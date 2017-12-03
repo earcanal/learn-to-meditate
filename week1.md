@@ -2,11 +2,10 @@
 
 ## Week 1 Resources
 
-[Ajahn Brahm's Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf)
+* [Week 1 guided meditation (10 minutes)](https://goo.gl/zteJS3)
+* [Ajahn Brahm's Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf)
 
 Read pages 1-5 which are the official instructions for the course.
-
-[Week 1 guided meditation (10 minutes)](https://goo.gl/zteJS3)
 
 ## Week 1
 
