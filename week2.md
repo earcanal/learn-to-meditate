@@ -59,6 +59,15 @@ If you meditate without guidance, you can time the meditation using a phone, or 
   
 This week we introduced breath counting to help you with stage 3, **silent present moment awareness of the breath**.  Ajahn Brahm has something to say about this:
 
-  * [YoutTube (3.5m)](https://www.youtube.com/embed/MTWDEzbRza4?start=1&end=230)
+  * [YouTube (3.5m)](https://www.youtube.com/embed/MTWDEzbRza4?start=1&end=230)
 
 His technique is more complicated than we need, so stick to counting 9 breaths as per the guided meditation.
+
+### Day 5: Watching the breath
+
+The guided meditations in the course may not explicitly include an instruction to invite the breath (stage 3), so just use your own judgement to know when the time is right.  Here's Ajahn Brahm's advice on how to make that judgement, and on overcoming common problems at this stage:
+
+  * [YouTube (6m)](https://www.youtube.com/embed/nCUQdIbfWwQ?start=930&end=1305)
+  * [YouTube (6m)](https://www.youtube.com/embed/nCUQdIbfWwQ?start=1590&end=2095)
+  * [YouTube (1m)](https://www.youtube.com/embed/nCUQdIbfWwQ?start=2690&end=2791)
+
