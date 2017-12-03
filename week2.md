@@ -65,7 +65,7 @@ His technique is more complicated than we need, so stick to counting 9 breaths a
 
 ### Day 5: Watching the breath
 
-The guided meditations in the course may not explicitly include an instruction to invite the breath (stage 3), so just use your own judgement to know when the time is right.  Here's Ajahn Brahm's advice on how to make that judgement, and on overcoming common problems at this stage:
+The guided meditations in the course may not explicitly include an instruction to invite the breath (stage 3), so just use your own judgement to know when the time is right.  Here's Ajahn Brahm's advice on *when* and *how* to watch the breath:
 
   * [YouTube (6m)](https://www.youtube.com/embed/nCUQdIbfWwQ?start=930&end=1305)
   * [YouTube (6m)](https://www.youtube.com/embed/nCUQdIbfWwQ?start=1590&end=2095)
