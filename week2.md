@@ -2,11 +2,10 @@
 
 ## Week 2 Resources
 
+* [Week 2 guided meditation  (15 minutes)](https://drive.google.com/file/d/0B8G4U8ekxz_TTFYxenhVLXpPTzg/view?usp=sharing)
 * [Ajahn Brahm's Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf)
 
 Read pages 1-5 which are the official instructions for the course.
-
-* [Week 2 guided meditation  (15 minutes)](https://drive.google.com/file/d/0B8G4U8ekxz_TTFYxenhVLXpPTzg/view?usp=sharing)
 
 ## Week 2
 
