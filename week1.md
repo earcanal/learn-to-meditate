@@ -41,3 +41,4 @@ Recall Ajahn Brahm's simile for stage 2:
 attention to the next guest that comes in the door.  Since a guest comes in the door every moment, all you can do is to
 greet one and then immediately go on to greet the next one.  You cannot afford to engage in even the shortest conversation with any guest, since this would mean you would miss the one coming in next. In meditation, all experiences come through the door of our senses into the mind one by one in succession. If you greet one experience with mindfulness and then get into conversation with your guest, then you will miss the next experience following right behind.*
 
+[Other weeks](index.md)
