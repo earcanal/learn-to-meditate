@@ -13,4 +13,4 @@ Creswell (2017) is a nice review of the better quality research into the benefit
 
 # References
 
-Creswell, J. D. (2017). Mindfulness Interventions. Annual Review of Psychology, 68(1), 491–516. https://doi.org/10.1146/annurev-psych-042716-051139
+[Creswell, J. D. (2017). Mindfulness Interventions. Annual Review of Psychology, 68(1), 491–516.]( https://doi.org/10.1146/annurev-psych-042716-051139)
