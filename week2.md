@@ -70,3 +70,4 @@ The guided meditations in the course may not explicitly include an instruction t
   * [YouTube (6m)](https://www.youtube.com/embed/nCUQdIbfWwQ?start=1590&end=2095)
   * [YouTube (1m)](https://www.youtube.com/embed/nCUQdIbfWwQ?start=2690&end=2791)
 
+[Other weeks](index.md)
