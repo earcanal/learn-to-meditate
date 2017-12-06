@@ -19,3 +19,5 @@ There's been so much coverage of mindfulness in recent years, I thought I'd shar
 * [Mindfulness with wisdom/kindness (YouTube 11m)](https://www.youtube.com/embed/XLZYPojKYw4?start=810&end=1515)
 
 You've already been practising mindfulness of the body (at the start of your meditations when you settle in), mindfulness of thinking (noticing and letting go of thoughts about the past and future), and mindfulness of the breath.  Mindfulness meditation means applying mindfulness for a sustained period.  The breath is often used as a meditation object of meditation, because it's something you always have with you, which is emotionally neutral, and constantly changing.
+
+[Other weeks](index.md)
