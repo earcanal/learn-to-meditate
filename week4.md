@@ -23,3 +23,4 @@ You may also want to re-watch Ajahn Brahm's comments on mindfulness _with_ wisdo
 
 * [YouTube](https://www.youtube.com/embed/XLZYPojKYw4?start=810&end=1515) (~11m)
 
+[Other weeks](index.md)
