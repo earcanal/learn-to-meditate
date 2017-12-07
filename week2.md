@@ -9,7 +9,7 @@ Read pages 1-5 which are the official instructions for the course.
 
 ## Week 2
 
-In [Week 1](week1.md) you learnt how to prepare you mind and posture for meditation, and the three stages of Ajahn Brahm's
+In [Week 1](week1.md) you learnt how to prepare your mind and posture for meditation, and the three stages of Ajahn Brahm's
 method of meditation.  The goal this week is to meditate daily for 15 minutes.
 
 Here's a reminder of the brief, but powerful breath exercise we did in the class.
