@@ -28,4 +28,4 @@ If there's one video you watch, which reminds you how to meditate, it's Ajahn Br
 
 ### Day 5: The Peace-o-meter
 
-Ajahn Brahm describing [the Peace-o-meter (YouTube, 3m)](https://www.youtube.com/embed/DWwQiFPqTtw?start=312&end=503), a way to use mindfulness as a feedback mechanism to increase peace, and happiness.
+Ajahn Brahm describing [the Peace-o-meter (YouTube, 3m)](https://www.youtube.com/embed/DWwQiFPqTtw?start=312&end=503), a simple but powerful way to use mindfulness as a feedback mechanism to increase peace, and happiness.
