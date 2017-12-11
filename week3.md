@@ -24,8 +24,8 @@ You've already been practising mindfulness of the body (at the start of your med
 
 If there's one video you watch, which reminds you how to meditate, it's Ajahn Brahm's [simile of the cup (YouTube, 3m 45s)]( https://www.youtube.com/watch?v=T6wIWJ6cDl0).
 
-[Other weeks](index.md)
-
 ### Day 5: The Peace-o-meter
 
 Ajahn Brahm describing [the Peace-o-meter (YouTube, 3m)](https://www.youtube.com/embed/DWwQiFPqTtw?start=312&end=503), a simple but powerful way to use mindfulness as a feedback mechanism to increase peace, and happiness.
+
+[Other weeks](index.md)
