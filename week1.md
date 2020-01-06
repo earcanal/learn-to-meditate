@@ -31,7 +31,7 @@ Here's Ajahn Brahm talking about meditation posture:
 
 Here's Ajahn Brahm explaining how you prepare for meditation (stage 0), then how letting go of the past and the future reveals the present moment (stage 1):
 
-* [YouTube (8 minutes)](https://www.youtube.com/embed/3WOtkPm_9gU?start=2390&end=2948).
+* [YouTube (8 minutes)](https://www.youtube.com/embed/SQ3IkOlLEe0?start=2390&end=2948).
 
 ### Day 4: Silent awareness of the present moment
 
