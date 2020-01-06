@@ -21,6 +21,6 @@ Ajahn Brahm emphasises "kindfulness" in the meditations which we have been doing
 
 You may also want to re-watch Ajahn Brahm's comments on mindfulness _with_ wisdom/kindness:
 
-* [YouTube](https://www.youtube.com/embed/XLZYPojKYw4?start=810&end=1515) (~11m)
+* [YouTube](https://www.youtube.com/embed/MpUnY_GdOu0?start=810&end=1515) (~11m)
 
 [Other weeks](index.md)
