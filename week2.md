@@ -25,7 +25,7 @@ bring full attention to it. If you like, repeat this three-breaths practice a fe
 This is a fast (3 breaths take between 15-30 seconds), but powerful exercise which you can use to start your meditation,
 and also when you first move your attention to the breath.  It tunes your awareness to the in-breath and out-breath, resets your posture,  and orients you towards feelings of joy.  This feeling of joy can become intrinsically motivating, making your daily meditation a pleasurable experience that you enjoy, and look forward to.
 
-Use [the guided meditation]((https://drive.google.com/file/d/0B8G4U8ekxz_TTFYxenhVLXpPTzg/view?usp=sharing)) for at least
+Use [the guided meditation](https://goo.gl/cFNij2) for at least
 the first 3 days this week.  Find your relaxed, alert posture as you listen to Ajahn Brahm's brief introduction.
 He will then guide you through stage 1 (sustained attention on the present moment) and stage 2 (silent awareness of the present moment).  I've added instructions for counting breaths in groups of 9, which is a way to stabilse attention on the breath when you reach stage 3 (silent present moment awareness of the breath).  Once you become comfortable with this routine, you can try it without the guidance if you prefer.
 
