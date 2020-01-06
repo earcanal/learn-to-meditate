@@ -5,11 +5,11 @@
 * [Week 1 guided meditation (10 minutes)](https://goo.gl/zteJS3)
 * [Ajahn Brahm's Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf)
 
-Read pages 1-5 which are the official instructions for the course.
+Read pages 1-5 of the [Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf), which are the official instructions for the course.
 
 ## Week 1
 
-This week's meditation will reinforce the the 3 meditation stages which were introduced in the first class.  You don't need to keep track of time, as the instruction will tell you when to end the meditation.  Feel free to meditate a bit longer if you like.  Use this guided meditation for at least the first 2 or 3 sessions.
+This week's meditation will reinforce the the 3 meditation stages which were introduced in the first class.  You don't need to keep track of time, as the instructions will tell you when to end the meditation.  Feel free to meditate a bit longer if you like.  Use this guided meditation for at least the first 2 or 3 sessions.
 
 ### Day 1: Establishing a meditation practice
 
