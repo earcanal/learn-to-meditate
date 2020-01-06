@@ -5,7 +5,7 @@
 * [Week 4 guided meditation (25 minutes)](https://goo.gl/UTqUJG)
 * [Ajahn Brahm's Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf)
 
-Read pages 1-5 which are the official instructions for the course.
+Read pages 1-5 of the [Basic Method of Meditation](ajahn-brahm_the-basic-method-of-meditation.pdf), which are the official instructions for the course.
 
 ## Week 4
 
