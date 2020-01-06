@@ -16,7 +16,7 @@ Sleepiness is a common challenge for meditators.  If you're falling asleep it's 
 There's been so much coverage of mindfulness in recent years, I thought I'd share Ajahn Brahm's concise clarifications on what mindfulness is, and why it's worth cultivating.
 
 * [Awareness of the correct thing (YouTube 2m50s)](https://www.youtube.com/embed/MpUnY_GdOu0?start=1&end=170)
-* [Mindfulness with wisdom/kindness (YouTube 11m)](https://www.youtube.com/embed/XLZYPojKYw4?start=810&end=1515)
+* [Mindfulness with wisdom/kindness (YouTube 11m)](https://www.youtube.com/embed/MpUnY_GdOu0?start=810&end=1515)
 
 You've already been practising mindfulness of the body (at the start of your meditations when you settle in), mindfulness of thinking (noticing and letting go of thoughts about the past and future), and mindfulness of the breath.  Mindfulness meditation means applying mindfulness for a sustained period.  The breath is often used as a meditation object of meditation, because it's something you always have with you, which is emotionally neutral, and constantly changing.
 
