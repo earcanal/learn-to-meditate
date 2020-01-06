@@ -25,7 +25,7 @@ Meditation posture should generally be  **comfortable and upright** or **simulta
 
 Here's Ajahn Brahm talking about meditation posture:
 
-* [YouTube (6 minutes)](https://www.youtube.com/embed/3WOtkPm_9gU?start=1712&end=2129).
+* [YouTube (6 minutes)](https://www.youtube.com/embed/SQ3IkOlLEe0?start=1712&end=2129).
 
 ### Day 3: Preparation, Sustained attention on the present moment
 
